@@ -24,4 +24,4 @@
 
 ## Contact
 - Email: durrieu.elise@gmail.com
-- LinkedIn: (www.linkedin.com/in/elise-durrieu-9b53b5254)
+- LinkedIn: [Mon linkedin-(https://www.linkedin.com/in/elise-durrieu-9b53b5254/)
